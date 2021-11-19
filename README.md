@@ -1,1 +1,1 @@
-# -diplomado_infografia_modulo_3_clase_2
+# diplomado_infografia_modulo_3_clase_2
